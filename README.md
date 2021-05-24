@@ -3,7 +3,7 @@ Hi,,, I’m proud of you! 👋
 My name is Fandy Ahmad Irianto </br>
 You can call me Fandy
 
-Welcome to THEFVNDAY
+Welcome to THEFVNDAY </br>
 Have A Fun Day
 
 - 🔭 I’m studied at Sebelas Maret University
