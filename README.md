@@ -1,6 +1,6 @@
 Hi,,, I’m proud of you! 👋
 
-My name is Fandy Ahmad Irianto
+My name is Fandy Ahmad Irianto </br>
 You can call me Fandy
 
 Welcome to THEFVNDAY
